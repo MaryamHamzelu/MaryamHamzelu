@@ -10,5 +10,5 @@ I’m an artificial intelligence engineer based in Monréal, Québec, who enjoys
 - 💬 Let's share our experiences and learn from each other.
 - 🎯 My goal in 2022 is more participation in open source community.
 - 🚴‍♀️ I always enjoy inside/outside activities and I try to be an energetic, cheerful team player.
-- ⚡️ I'm an [INFJ-A](https://www.16personalities.com/profiles/33d5080f78da8).
+- ⚡️ I'm an [ENFP-T](https://www.16personalities.com/enfp-personality) [My Profile](https://www.16personalities.com/profiles/33d5080f78da8).
 - You can reach out to me on my [Linkedin](linkedin.com/in/maryam-hamzelu) profile or my personal [email](maryam.hamzelu93@gmail.com).
